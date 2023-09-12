@@ -7,7 +7,7 @@ Me chamo Bruno, tenho 21 anos, estou fazendo superior em ADS, além de cursar de
 
 # 🚀Meus planos
 
-Tenho como meta, merecer uma oportunidade como desenvolvedor full-stack, podendo aplicar todo conhecimento que estou adquirindo, além de poder aprender cada vez mais com quem já sabe.
+Tenho como meta, conquistar uma vaga como desenvolvedor, podendo aplicar todo conhecimento que estou adquirindo, além de poder aprender cada vez mais com quem já sabe.
 
 ---
 
